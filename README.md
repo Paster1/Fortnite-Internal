@@ -3,6 +3,9 @@
 If you need fortnite internal dev dm me 
 you need much discord members
 
+Dont trust fr
+I got logged 
+
 Fr#5011
 
 
